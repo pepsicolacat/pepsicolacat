@@ -4,6 +4,5 @@
 - 👯 I’m looking to collaborate on projects
 - 🤔 I’m looking for help with coding
 - 💬 Ask me about anything
-- 📫 How to reach me: hmu
+- 📫 How to reach me: LinkedIn!
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: i dont know how to use github!
